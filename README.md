@@ -1,1 +1,1 @@
-# Courses  https://admiring-pare-f61bd2.netlify.app/#Home
+# Courses  https://boring-swartz-03c0d1.netlify.app/
