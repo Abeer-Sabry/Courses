@@ -1,1 +1,1 @@
-# Courses  https://trusting-brattain-b9265a.netlify.app/
+# Courses https://trusting-brattain-b9265a.netlify.app/
