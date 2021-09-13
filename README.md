@@ -1,1 +1,1 @@
-# Courses  https://boring-swartz-03c0d1.netlify.app/
+# Courses  https://trusting-brattain-b9265a.netlify.app/
